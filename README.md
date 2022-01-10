@@ -1,0 +1,1 @@
+# Preparation-Tips-to-Pass-Microsoft-Dynamics-365-Finance-and-Operations-Apps-Solution-Architect-MB-7
